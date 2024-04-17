@@ -1,0 +1,1 @@
+Technical analysis(4hour-1Day) on all coins and shares these analyses with you instantly. Additionally, Pumdum provides you with real-time alerts on coins experiencing pump and dump movements. (Only Binance)
